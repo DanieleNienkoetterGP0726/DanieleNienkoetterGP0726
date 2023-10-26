@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @DanieleNienkoetterGP0726..
+- Trabalho como Analista de Gestão de Pessoas na Sicredi Vale do Piquiri Abcd PR/SP, com recrutamento e seleção de diversas oportunidades voltadas para as áreas de negócios, Análise de Dados e Desevolvimento de Softwares;
